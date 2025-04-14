@@ -3,8 +3,8 @@
 
 网页版永久地址（需要VPN）:https://56cg.me 
 
-56吃瓜备用网址1： https://56cg2.com
+56吃瓜备用网址1： https://56cg24.com
 
-56吃瓜备用网址2： https://56cg3.com
+56吃瓜备用网址2： https://56cg23.com
 
-56吃瓜备用网址3： https://56cg.online
+56吃瓜备用网址3： https://56cg22.com
